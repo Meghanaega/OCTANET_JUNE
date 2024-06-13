@@ -1,1 +1,1 @@
-A landing page named "ClassyCart"
+Tasks of octanet services private limited as a intern 
